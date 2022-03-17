@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ToxukaGH
+- 👀 I’m interested in development 
+- 🌱 I’m currently learning criminal investigation
+- 📫 How to reach me via discord: Toxuka#0001
